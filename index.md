@@ -9,3 +9,4 @@ nein, als gefeierter Held
 * Aufbruch: Er überwindet sein Zögern und macht sich auf die Reise.
 * Auftreten von Problemen, die als Prüfungen interpretiert werden können
 * Übernatürliche Hilfe: Der Held trifft unerwartet auf einen oder mehrere Mentoren.
+> Weil ich die Wahrheit sage? Wo ist Demokratie die freie Meinungsäuß ...
